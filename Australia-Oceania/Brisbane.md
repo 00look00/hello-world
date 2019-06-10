@@ -8,7 +8,7 @@ Brisbane is the capital of and the most populated city in the Australian state o
 
 ## To Eat/Drink
 
-*
+* Eagle Street Pier (https://www.eaglestreetpier.com.au/restaurants-and-bars)
 
 ## Parks 
 
